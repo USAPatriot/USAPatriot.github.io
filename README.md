@@ -4,7 +4,9 @@
 
 For Information contact us at GulfPalmsAuto@outlook.com
 
-   or send text-only message to 239-677-1045
+See our new Work in Progress site: www.GulfPalmsAuto.com
+
+       or send text-only message to 239-677-1045
 
 Love your car but hate the drive? We will pick-up and deliver your car
 
